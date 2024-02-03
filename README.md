@@ -1,0 +1,1 @@
+# Projeto_Fase_2_Explore_semanticas
