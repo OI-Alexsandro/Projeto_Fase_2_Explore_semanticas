@@ -1,1 +1,1 @@
-# Projeto_Fase_2_Explore_semanticas
+# Explores_Projetos_Intermediário-Semântica_acessibilidade
